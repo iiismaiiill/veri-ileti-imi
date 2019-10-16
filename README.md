@@ -1,1 +1,1 @@
-veri  iltişimi
+veri  iletişimi
